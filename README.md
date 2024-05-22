@@ -1,4 +1,4 @@
-# Bem vindos oa meu perfil 💙
+# Bem vindos ao meu perfil 💙
  Meu nome é Guilherme Sousa Barbosa
 
  - Estou estudando na [Alura](https://alura.com.br)
