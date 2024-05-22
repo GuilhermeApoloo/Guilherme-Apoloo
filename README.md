@@ -9,5 +9,4 @@
 
 00001103162433sp@al.educacao.sp.gov.br
 
-
-![](https://tenor.com/pt-BR/view/buenos-dias-coffee-mocha-cup-of-coffee-coffee-time-gif-17146778)
+![](https://media.tenor.com/-Ldvb953RvkAAAAi/bunny.gif)
