@@ -1,4 +1,4 @@
-# Bem vindos ao meu perfil 💙
+# Bem vindos ao meu perfil💜
  Meu nome é Guilherme Sousa Barbosa
 
  - Estou estudando na [Alura](https://alura.com.br)
@@ -10,3 +10,4 @@
 00001103162433sp@al.educacao.sp.gov.br
 
 ![](https://media.tenor.com/-Ldvb953RvkAAAAi/bunny.gif)
+![](
