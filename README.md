@@ -10,4 +10,3 @@
 00001103162433sp@al.educacao.sp.gov.br
 
 ![](https://media.tenor.com/-Ldvb953RvkAAAAi/bunny.gif)
-![](https://tenor.com/pt-BR/view/hugs-love-no-crying-gif-167604756388140396)
